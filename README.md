@@ -1,4 +1,4 @@
-Hope Allchin \she/her
+Hope Allchin | she/her/hers
 
 Hey there! I'm currently a doctoral student at the University of Flordia studying Higher Education :crocodile: 
 
