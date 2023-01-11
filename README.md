@@ -1,4 +1,11 @@
-### Hi there 👋
+Hope Allchin
+she/her
+
+Hey there! I'm currently a doctoral student at the University of Flordia studying Higher Education :crocodile: 
+I'm interested in research on admissions, college access, student activism, and the history of higher ed. 
+
+📫 Reach me at hope.allchin@ufl.edu
+
 
 <!--
 **hallchin/hallchin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
